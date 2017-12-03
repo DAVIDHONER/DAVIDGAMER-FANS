@@ -1,2 +1,0 @@
-# DAVIDGAMER-FANS
-para fans de DAVIDGAMER
